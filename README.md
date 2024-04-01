@@ -1,2 +1,2 @@
 # Manu
-I want to di study.
+I want to do study.
